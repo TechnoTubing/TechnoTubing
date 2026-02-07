@@ -1,7 +1,4 @@
-👋 Hey y'all, I’m @TechnoTubing.
-  Idk what I'm doing here but I'm in high school and want to go to university for engineering 😌
-Trying (and failing) to learn go 😭😭🙏🙏
-I've also got a youtube channel if you wanna check that out.
+Once I've got my life in order I'm gonna lock in and learn to code in multiple languages
 
 Also humanity first people be nice to your species 🫶❤️‍🩹
 
